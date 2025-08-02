@@ -1,0 +1,1 @@
+please do not just plagarise this code as this is, primaraly, for my education and us. But if you would like to have a look at, or base your code off this I'm perfectly fine, as long as you don't blatantley copy my code and not give me ANY credit, then whatever.
